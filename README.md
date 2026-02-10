@@ -1,4 +1,4 @@
-## Hi there 👋 [ My Names are Names are Michelle Terer 
+## Hi there 👋 [ My Names are Michelle Terer 
       .   ABOUT ME
        
 - 🔭 I’m currently working as a model at a company called Affric Nasaha 
