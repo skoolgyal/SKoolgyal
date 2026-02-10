@@ -6,4 +6,4 @@
 - 👯 I’m looking to collaborate on any agencie sthat deals with model
 -          HOW TO REACH ME
 -      EMail
--             → terermichelle91@gmail.com
+-             → terermichelle91@gmail.com.
